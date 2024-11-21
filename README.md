@@ -1,5 +1,5 @@
 # 💫 About Me:
-😷 17 y.o from Tashkent 🇺🇿<br>🔭 Currently working on Freelance projects <br>🌱 I’m currently learning Python 🐍
+😷 17 y.o from Tashkent 🇺🇿<br>🔭 Currently working at Agrobank <br>
 
 
 ## 🌐 Socials:
